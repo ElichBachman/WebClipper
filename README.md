@@ -1,2 +1,2 @@
-![image](https://github.com/ElichBachman/WebClipper/assets/148936139/059f7969-043e-4da2-8af6-84d49909bfeb)
+![image](https://upload.wikimedia.org/wikipedia/commons/thumb/9/93/Rembrandt_Harmensz_van_Rijn_-_Return_of_the_Prodigal_Son_-_Google_Art_Project.jpg/2560px-Rembrandt_Harmensz_van_Rijn_-_Return_of_the_Prodigal_Son_-_Google_Art_Project.jpg)
 
